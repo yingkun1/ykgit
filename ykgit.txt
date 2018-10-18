@@ -1,1 +1,1 @@
-sunck is a good man
+sunck is a nice man
